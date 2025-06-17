@@ -1,1 +1,1 @@
-DSA projec(2024-25)
+DSA project(2024-25)
